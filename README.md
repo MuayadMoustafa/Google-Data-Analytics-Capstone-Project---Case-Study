@@ -1,1 +1,1 @@
-# Google-Data-Analytics-Capstone-Project---Case-Study
+# Google Data Analytics Capstone-Project-Case Study
